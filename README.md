@@ -1,0 +1,1 @@
+# InsanityTheGod.github.io
